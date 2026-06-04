@@ -1,4 +1,4 @@
-## Hi there 👋
+## 472e1367476b4fc456967af57c488f09.jpg
 
 <!--
 **GirlRitual/GirlRitual** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
